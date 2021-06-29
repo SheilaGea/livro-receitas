@@ -3,6 +3,6 @@
 
 Olá! Bem vndo ao livro de receitas 
 
-- - Strogonoff de frango
+- Strogonoff de frango
 
 
